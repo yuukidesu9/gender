@@ -1,3 +1,3 @@
 # gender
 
-it/its kitten thing
+he/she/they shapeshifter fren
